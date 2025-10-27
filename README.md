@@ -1,3 +1,3 @@
 # UBC-Bolt-First-Byte-2025
 
-Achieved a 3rd place standing
+Achieved a 3rd place standing out of 39 teams.
